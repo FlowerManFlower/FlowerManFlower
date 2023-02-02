@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheKabloomSquad
+- 👋 Hi, I’m @FlowerMan
 
-- 📫 Reach me in Discord: The Kabloom Squad#001
+- 📫 Reach me in Discord: FlowerMan#5697
 
